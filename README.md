@@ -1,6 +1,6 @@
 # 闪狐云机场官网地址
 
-最新地址：[flashfox.pro](https://inv01.ffaff.cc/register?aff=qouOntSV)
+最新地址：[flashfox.pro](https://w06.ffwebb01.cc/register?aff=qouOntSV)
 
 ## 闪狐云介绍
 
